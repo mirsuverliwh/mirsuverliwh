@@ -1,5 +1,6 @@
-[me](https://open.spotify.com/playlist/4UKZtqIRUfCshSl2bNWTPQ?si=DYUiBGUURkKLS6tW1Iuj_w&pi=GsATiwRHSEu9W)
 
-![Image](https://github.com/user-attachments/assets/47fb9a17-04ad-474b-a75f-365f18a5097d)
+![Image](https://github.com/user-attachments/assets/a2896b6d-4b7b-4d5a-87e2-0f0ee85fb8d5)
 
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=kagefumiw&color=73cdb6)
+
+
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=kagefumiw&color=33252E)
