@@ -1,4 +1,4 @@
-[match rentry](https://rentry.co/wbinh) - [sph(wip)](https://spacehey.com/hxy) - [ata](https://fwnijiro.atabook.org/) .
+[match rentry](https://rentry.co/wbinh) - [sph(wip)](https://spacehey.com/hxy) - [ata](https://fwnijiro.atabook.org/) - [guns](https://guns.lol/hxy.) .⋆♱⃓
 
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Noto+Serif+Japanese&size=17&pause=1000&color=273340&height=40&lines=%22hey+nana+%E5%88%9D%E3%82%81%E3%81%A6%E4%BC%9A%E3%81%A3%E3%81%9F%E6%99%82%E3%81%AE%E3%81%93%E3%81%A8%E3%82%92%E6%80%9D%E3%81%84%E5%87%BA%E3%81%99+%3F+%22)](https://git.io/typing-svg)
