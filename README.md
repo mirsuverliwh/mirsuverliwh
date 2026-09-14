@@ -12,4 +12,5 @@
 <a href="https://guns.lol/mirsu">‎𝙜𝙪𝙣𝙨</a>
 
 <img width="50%" src="https://files.catbox.moe/ili4if.gif">
+
 by haw tysm >⩊<
